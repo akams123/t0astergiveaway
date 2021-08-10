@@ -7,8 +7,6 @@ All you have to do is go to the website and follow the steps and enter!
 \
 I lied, I won the toaster.
 ---------------------------------------------------------------------------------------
-Domain: https://ragarnoky.github.io/t0astergiveaway
+Domain: https://ragarnoky.github.io/toastergiveaway
 \
-Special thanks to: my uncle, my friend Eila, and the Funeica Foundation of Toasters
-\
-Funded by the Funeica Foundation of Toasters
+Kitchen appliance is the most comedic thing I've ever seen in my experience of living on this planet Earth
